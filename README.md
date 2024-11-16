@@ -4,7 +4,7 @@
 - I’m looking to collaborate & learn with a team
 - You can reach me with email/linkdin/facebook
 - You can call me Tanjeem
-- Fun I Love to talk with experined people and take suggestions from them. 
+- I Love to talk with experined people and take suggestions from them. 
 
 <!---
 Tanjeem1/Tanjeem1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
