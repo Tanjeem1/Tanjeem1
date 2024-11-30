@@ -1,4 +1,4 @@
-### Hi there 👋, Hey, I am a python developer & Machine learning enthusiastic 
+### Hey there 👋, I am a python developer & Machine learning enthusiastic 
 #### python developer & ML enthusiastic 
 ![python developer & ML enthusiastic ](https://cdn.hashnode.com/res/hashnode/image/upload/v1635950203686/y7hE7KCiL.png?auto=compress,format&format=webp)
 
